@@ -5,4 +5,4 @@
 
 #### Очень нравиться учиться
 
-![alt text](https://drive.google.com/file/d/1oMcRUSTG7LvjPIIRM90awPIoElBObxaC/view?usp=drive_link)
+![](1743534361750.jpg)
